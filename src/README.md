@@ -8,5 +8,4 @@ Whether you're a recent graduate entering the workforce or an experienced profes
 
 Let's embark on the journey of developing the power of adaptability and using lifelong learning to navigate change!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
