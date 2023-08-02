@@ -1,4 +1,4 @@
-Chapter 7: Tips for Building and Maintaining Strong Collaborative Relationships
+Tips for Building and Maintaining Strong Collaborative Relationships
 ===============================================================================
 
 Collaborative relationships are crucial for success in both personal and professional settings. Building and maintaining strong collaborative relationships requires effort, communication, and a commitment to mutual respect and understanding. In this chapter, we will explore valuable tips for fostering and nurturing strong collaborative relationships.
