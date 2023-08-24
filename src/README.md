@@ -1,4 +1,3 @@
-# Introduction
 
 Change is a constant in life, and the ability to adapt and learn new skills is critical to success in today's fast-paced and ever-changing world. The Power of Adaptability provides practical guidance on how to develop lifelong learning habits that enable you to navigate change and thrive in any situation.
 

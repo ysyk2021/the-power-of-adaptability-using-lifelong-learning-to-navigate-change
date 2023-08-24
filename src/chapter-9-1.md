@@ -1,5 +1,3 @@
-Strategies for Maintaining Motivation During Periods of Change
-=========================================================================
 
 In this chapter, we will explore effective strategies for maintaining motivation during periods of change. Change can often be challenging and overwhelming, causing our motivation levels to dip. However, by implementing the following strategies, you can stay motivated and navigate through change with resilience and positivity.
 

@@ -1,5 +1,3 @@
-Chapter 4: Building Resilience
-==============================
 
 Resilience is the ability to bounce back from adversity and challenges. In times of change, it's essential to build resilience in order to navigate uncertainty and overcome obstacles. In this chapter, we will explore the importance of resilience in times of change and provide techniques for building resilience and coping with challenges.
 

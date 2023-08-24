@@ -1,5 +1,3 @@
-Chapter 7: Collaborating with Others
-====================================
 
 Collaboration is a powerful tool for navigating change and achieving success. In this chapter, we will explore the benefits of collaboration and offer tips for building and maintaining strong collaborative relationships.
 

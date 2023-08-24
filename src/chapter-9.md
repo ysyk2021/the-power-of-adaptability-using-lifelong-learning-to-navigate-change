@@ -1,5 +1,3 @@
-Chapter 9: Staying Motivated Through Transitions
-================================================
 
 Navigating change can be challenging, and it's easy to lose motivation during periods of transition. However, staying motivated is essential for building adaptability and achieving personal and professional success. In this chapter, we will explore strategies for maintaining motivation during periods of change and tips for staying focused on goals.
 

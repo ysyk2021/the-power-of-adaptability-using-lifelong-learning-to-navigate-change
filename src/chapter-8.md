@@ -1,5 +1,3 @@
-Chapter 8: Celebrating Victories and Learning from Mistakes
-===========================================================
 
 Recognizing achievements and learning from mistakes is essential for developing adaptability. In this chapter, we will explore the importance of celebrating victories and learning from errors, and provide techniques for doing so effectively.
 

@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Opportunities for Growth
-==============================================
 
 In this chapter, we will explore the connection between change and opportunities for growth. We will also discuss strategies for maximizing opportunities for growth through lifelong learning.
 
